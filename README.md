@@ -27,7 +27,7 @@ markdown
 
 我们正在寻找具备优质流量（游戏、数字资产）的合作伙伴，以及寻求稳健投资回报的战略资方。
 
-*   **Telegram:** @你的账号 (JUC_pro)
+*   **Telegram:** @我的账号 (JUC_pro)
 *   **Status:** **ACTIVE** - Seeking Strategic Partners & Liquidity Providers.
 
 ---
